@@ -1,0 +1,2 @@
+# Macibu_repozitoriji_juris
+Testa_repozitorijs_juris-prieks-Repo
